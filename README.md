@@ -80,7 +80,7 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- [𝐀𝐋-𝐀𝐌𝐈𝐍 𝐀𝐍𝐂𝐇𝐀𝐑 ](𝗡𝗢𝗧 𝗔 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 𝗣𝗔𝗚𝗘)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- [𝗗𝗝 𝗩𝗢𝗜𝗝𝗘𝗥](𝗡𝗢𝗧 𝗔 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 𝗣𝗔𝗚𝗘)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
