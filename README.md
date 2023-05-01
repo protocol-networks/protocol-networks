@@ -76,12 +76,12 @@
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
-- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [𝐀𝐋-𝐀𝐌𝐈𝐍 𝐀𝐍𝐂𝐇𝐀𝐑 ](https://www.facebook.com/profile.php?id=100089456588455&mibextid=ZbWKwL)
+- 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:- [𝗠𝗔𝗛𝗜𝗡](https://www.facebook.com/profile.php?id=100089456588455)
  
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
 - 📱𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊 𝐏𝐀𝐆𝐄:- [𝐀𝐋-𝐀𝐌𝐈𝐍 𝐀𝐍𝐂𝐇𝐀𝐑 ](𝗡𝗢𝗧 𝗔 𝗙𝗔𝗖𝗘𝗕𝗢𝗢𝗞 𝗣𝗔𝗚𝗘)
- 
+
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
  
 - 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [𝗣𝗥𝗢𝗧𝗢𝗖𝗢𝗟-𝗡𝗘𝗧𝗪𝗢𝗥𝗞𝗦](https://github.com/protocol-networks)
